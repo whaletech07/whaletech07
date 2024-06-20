@@ -1,4 +1,4 @@
-- 👋 Hey, I’m Whale Tech, also known as 07whaleboy.
+- 👋 Hey, I’m Whale Tech!
 - 👀 I’m interested in operating systems, and computers in general.
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I have a YouTube channel! You can find it at https://youtube.com/@WhaleTech07.
